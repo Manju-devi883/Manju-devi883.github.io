@@ -6,4 +6,4 @@ Hello one and all, firstly i introduce my self to you so first of all my name is
 firstly at gndec we visited at Gurudwara sahib for inauguration ceremony.Aftet kirtan and ardaas they provide us tea and sweets after that we were go to auditorium.There we met many faculty members.Mrs gurleen kaur an IPS officer at dehli came to our college and gave us huge round of knowledge.She told us about his struggle life and to much more .On that day we enjoy too much.It is a very powerful experience for me.thanks for this session
 ![alt gndec ludhina](IMG_20240720_120757.png)
 ###2nd DAY IN GNDEC, LUDHIANA 
-Today we came to know more about our guru nanak dev engineering college Ludhiana 
+Today we came to know more about our guru nanak dev engineering college Ludhiana.Our professors gave us detailed information about GNDEC and also motivated us at the same time
