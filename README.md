@@ -7,4 +7,4 @@ firstly at gndec we visited at Gurudwara sahib for inauguration ceremony.Aftet k
 ![alt gndec ludhina](IMG_20240720_120757.png)
 ###2nd DAY IN GNDEC, LUDHIANA 
 Today we came to know more about our guru nanak dev engineering college Ludhiana.Our professors gave us detailed information about GNDEC and also motivated us at the same time.they told us about various National and international societies and clubs going on in the college.Number of canteens and playground in the college, activities going on in college, hostel facilities, certain upcoming activities etc.Here we also come to know about various scholarships schemes that our college offers and all this was explained through interesting PPTs which made it way more interesting.thank you
-###This is my online excel course certificate 😊😊
+
