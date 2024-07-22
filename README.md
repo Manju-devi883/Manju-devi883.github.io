@@ -22,3 +22,7 @@ Today we came to know more about our guru nanak dev engineering college Ludhiana
 
 This is online excel course certificate 😊
 ![EXCEL CERTIFICATE](IMG_20240720_114309.jpg)
+
+**CONTACT ME ON**
+
+[linkedin link](https://www.linkedin.com/in/manju-devi-01b08731a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
