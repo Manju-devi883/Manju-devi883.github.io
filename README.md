@@ -9,6 +9,8 @@ Hello one and all, firstly i introduce my self to you so first of all my name is
 |Punjabi  |97             |100        |
 |English  |92             |100        |
 |Maths    |100            |100        |
+
+
 Now I share my experience in GNDEC from 9 july ...Day by Day 
 ![GNDEC, LUDHIANA](gne.front.jpg )
 #FIRST DAY IN GNDEC, LUDHIANA 
