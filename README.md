@@ -31,3 +31,8 @@ This is online excel course certificate 😊
 
 
 ![Poster from CANVA](IMG-20240718-WA0008.jpg)
+
+<ul>
+ <li> 10th percentage:92</li>
+ <li> 12th percentage:96</li>
+</ul>
