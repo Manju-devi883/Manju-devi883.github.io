@@ -28,3 +28,6 @@ This is online excel course certificate 😊
 [Linkedin link](https://www.linkedin.com/in/manju-devi-01b08731a?utm_source=share&utm_campaign=share_via&utm_content=profile&utm_medium=android_app)
 
 [Email](manjudevi152116@gmail.com)
+
+
+![Poster from CANVA](IMG-20240718-WA0008.jpg)
